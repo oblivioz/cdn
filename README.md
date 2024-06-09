@@ -1,3 +1,3 @@
 # What is this?
 
-This is where I host all of the images and stuff for my websites. 
+Uh this is used to host stuff i guess. Oblivioz is cool. Idk how you found this tbh smarty.
